@@ -1,6 +1,6 @@
 Hi there👋
 
-I'm Fresher,I completed my Master in computer application in 2020,I completed my graduation in bachelor in computer application in 2018, I come with an extensive learning with different technologies including Python,Data Science,Mule-soft,Java. The big thing what i have achieved there is to give dedication to work,learning new things & most important is, doing all things in best way."And, I'm definitely looking for a position where I an grow-professional development is something that's really important to me since I hope to take on managerial responsibilities in the future."
+I'm Experience candidate,I have completed my Master in computer application in 2020,I have completed my graduation in bachelor in computer application in 2018, I come with an extensive learning with different technologies including Python,Data Science,Mule-soft,Java. The big thing what i have achieved there is to give dedication to work,learning new things & most important is, doing all things in best way."And, I'm definitely looking for a position where I an grow-professional development is something that's really important to me since I hope to take on managerial responsibilities in the future."
 
 
 What i am with:
